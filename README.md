@@ -32,11 +32,11 @@ SIGN IN AS STAFF:
 
 
 PROTOTYPE OF OUR PROJECT:
-complete prototype pdf:
+Complete prototype pdf:
 https://drive.google.com/file/d/1beIuI_XKX_657OPNy1CXyzEwl5TTKNzk/view?usp=share_link
 
 
-whimsical link:
+Whimsical direct link:
 https://whimsical.com/VrzPBWPyYXQ6hZMFjgd3Aw
 
 
